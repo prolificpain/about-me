@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=prolificpain&label=views&color=858585&style=plastic" alt="prolificpain" /> </p>
 
-- **Im Voids, im 17 and cant focus for shit**
+- **Im Voids, im 18 and cant focus for shit**
 
 - **i dont like doing work on here**
 
